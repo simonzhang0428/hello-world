@@ -8,4 +8,4 @@ also wanna try Python next quarter.
 
 I love Cupertino.
 
-recent flavor is five guys.
+Recent flavor is five guys.
